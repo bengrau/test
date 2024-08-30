@@ -1,3 +1,3 @@
 # test
 
-The meaning of life is to life it at its fullest
+The meaning of life is to life it at its fullest and be happy
